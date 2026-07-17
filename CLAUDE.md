@@ -1,0 +1,1 @@
+C:/Users/fissi/personal/ai-automation/AGENTS.md
